@@ -7,8 +7,6 @@ I love philosophy. I believe math and physics come under it. If you’d see my y
 
 I love going out of my comfort zone and doing things I have never done before! At Colby, I have already signed up for co-president elections, choir lessons (half of my class has an age of 50+), volunteering to help immigrant kids, and joining this class. (I am glad I did)
 
-I love being an activist. I have always tried to voice my opinions on things I found wrong and right, physically, on social media fun fact : I have gained more than 1.5 million views on reels). I identify with the lgbtq community, and it is something I came to terms with recently.
-
 For reasons relating to legality and my safety, I will not be discussing my political standpoints p: ,but I’d say I am very open to different schools of thought. 
 
 I love my sisters. Coming from a low income family in India, My sisters(30, and 28) broke gender barriers to gain education and get amazing jobs. It is because of them that I am here at Colby. They’ve guided me throughout, supported my dreams financially, and inculcated feminist values onto me. I lost one of my sisters 3 months ago, but I like to believe that she’s here, proud that I made it. I love you and I miss you, sajal di.
