@@ -1,5 +1,4 @@
 Hey, I am Divyansh. I am an international student from Indore, India. I’ll try to introduce myself by introducing things I love. 
-![pngwing com (2)](https://github.com/capb0y/capb0y/assets/144381311/b80b582b-97df-4ac9-946c-82ec99f96587)
 
 I love the quote “Life is worth living because of our problems, not in spite of them”. It has helped me navigate through tough times, and the simple idea that our problems are what makes life interesting is so beautiful. I feel you could apply this idea to math as well.
 
